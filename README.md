@@ -1,2 +1,2 @@
 # mkan588-235-lab2
-nigeria
+my name is michael
